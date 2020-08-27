@@ -2,4 +2,4 @@
 
 
 
-#File: <a href="http://text.com">download train to pusan2</a>
+File: <a href="http://24.golink.host">download train to pusan2</a>
